@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Hadesha86
+- 👀 I’m interested in meeting groups and persons with knowledge of software and design development
+- 🌱 I’m currently learning software engineering, artificial intelligence with ALX
+- 💞️ I’m looking to collaborate on hard and exciting jobs
+- 📫 How to reach me would be by mail: joluwafemi86@gmail.com or number: +2347034249518
